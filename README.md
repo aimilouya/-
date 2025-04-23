@@ -1,0 +1,2 @@
+# -
+ӨЗБАС-high-school-site
